@@ -1,6 +1,6 @@
 # Política de Privacidad
 
-**JAIME ESCOBAR MARTÍNEZ** desarrolló la aplicación **Deebeat** como una aplicación comercial. Este **SERVICIO** es proporcionado por **JAIME ESCOBAR MARTÍNEZ** y está destinado para su uso tal cual.
+**JAIME ESCOBAR MARTÍNEZ** desarrolló la aplicación **Amortisia** como una aplicación comercial. Este **SERVICIO** es proporcionado por **JAIME ESCOBAR MARTÍNEZ** y está destinado para su uso tal cual.
 
 Esta página tiene como finalidad informar a los visitantes sobre mis políticas con respecto a la recopilación, uso y divulgación de información personal si alguien decide utilizar mi Servicio.
 
