@@ -1,6 +1,6 @@
 # Privacy Policy
 
-**JAIME ESCOBAR MARTINEZ** built the **Deebeat** app as a Commercial app. This SERVICE is provided by **JAIME ESCOBAR MARTINEZ** and is intended for use as is.
+**JAIME ESCOBAR MARTINEZ** built the **Amortisia** app as a Commercial app. This SERVICE is provided by **JAIME ESCOBAR MARTINEZ** and is intended for use as is.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
 
